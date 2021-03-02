@@ -58,5 +58,5 @@
 ## 赧于回顾、但是是成长中很重要的采访作品
 [采访Stacey Hadash，美银美林集团常务董事](https://v.qq.com/x/page/t0530mimmdh.html)  
 [采访Gordon M. Bethune，前美国大陆航空CEO](https://v.qq.com/x/page/l0511q0rygu.html)  
-[华尔街T3演播室：直击美股](https://v.qq.com/x/page/t0538d3g7eq.html)
+[华尔街T3演播室：直击美股](https://v.qq.com/x/page/t0538d3g7eq.html)  
 [纽交所演播室：连线Scott Redler](https://v.qq.com/x/page/a0524htlkwm.html)
