@@ -55,7 +55,7 @@
 [道法自然 多样之美（视频在文末）](https://mp.weixin.qq.com/s/u8OPVk0KSgeHFAd6lTlKuA)  
 [100秒看懂科技巨头市值变迁：苹果率先破万亿 亚马逊奋起直追](https://kuaibao.qq.com/s/20190502A037Y600)  
 
-## 赧于回顾、但是是成长中很重要的采访作品
+## 出镜采访作品
 [采访Stacey Hadash，美银美林集团常务董事](https://v.qq.com/x/page/t0530mimmdh.html)  
 [采访Gordon M. Bethune，前美国大陆航空CEO](https://v.qq.com/x/page/l0511q0rygu.html)  
 [华尔街T3演播室：直击美股](https://v.qq.com/x/page/t0538d3g7eq.html)  
