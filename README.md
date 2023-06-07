@@ -12,8 +12,7 @@
 [Who Buys from China](https://linkedin-mp.arcdmi.com/WinningGlobally/?from=timeline&isappinstalled=0)   
 
 ## 数据新闻（部分）    
-[你穿的汉服很美，但十有八九是山寨](https://mp.weixin.qq.com/s/TLbkdfFk0iVA5J9SDaaY1w)  
-[How China ranks among countries with most US work visas](https://www.globalyoungvoices.com/my-story/2017/10/27/how-china-ranks-among-countries-with-most-us-work-visas) 
+[你穿的汉服很美，但十有八九是山寨](https://mp.weixin.qq.com/s/TLbkdfFk0iVA5J9SDaaY1w)   
 [“加班光荣”“我很垃圾”？你很可能被老板PUA了](https://mp.weixin.qq.com/s/nagm79_oo_lJE2itgGgHLw)  
 [宝贝，我们等你回家过年－－图解十年千位儿童的被拐路线](https://mp.weixin.qq.com/s/cm1kkdiSFoGW4CsLIyNjfw)  
 [扒完北京地铁5年的数据，我们发现了最“悲剧”的通勤线路](https://www.thepaper.cn/newsDetail_forward_2676395)  
