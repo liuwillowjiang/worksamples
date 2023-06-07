@@ -7,6 +7,7 @@
 [“跨界”人生，筑基未来](https://chineseswirenews.swire.com/2022-02/Building-The-Future.html)  
 
 ## H5文案、数据整合以及项目管理(建议手机端观看)  
+[Who Runs China](https://news.cgtn.com/event/2019/whorunschina/index.html)    
 [Virus War](https://news.cgtn.com/event/2020/virus-war/index.html?from=singlemessage&isappinstalled=0)  
 [Who Buys from China](https://linkedin-mp.arcdmi.com/WinningGlobally/?from=timeline&isappinstalled=0)   
 
