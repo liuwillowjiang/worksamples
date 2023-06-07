@@ -1,6 +1,7 @@
 # worksamples
 ## 《太古思维》内刊文章主笔
 [志在必赢，畅爽未来](https://chineseswirenews.swire.com/2023-01/Driven-To-Win.html)
+
 [爱的步履，且行且长](https://chineseswirenews.swire.com/2023-01/Steps-Of-Love.html)
 [创流不息，向新而生](https://chineseswirenews.swire.com/2022-03/50th-Anniversary.html)
 [扬帆起航“她”力量](https://chineseswirenews.swire.com/2022-03/She-Power.html)
