@@ -1,9 +1,16 @@
 # worksamples
-## H5(建议手机端观看)  
+## 《太古思维》内刊文章主笔
+[志在必赢，畅爽未来](https://chineseswirenews.swire.com/2023-01/Driven-To-Win.html)
+[爱的步履，且行且长](https://chineseswirenews.swire.com/2023-01/Steps-Of-Love.html)
+[创流不息，向新而生](https://chineseswirenews.swire.com/2022-03/50th-Anniversary.html)
+[扬帆起航“她”力量](https://chineseswirenews.swire.com/2022-03/She-Power.html)
+[“跨界”人生，筑基未来](https://chineseswirenews.swire.com/2022-02/Building-The-Future.html)
+
+## H5文案、数据整合以及项目管理(建议手机端观看)  
 [Virus War](https://news.cgtn.com/event/2020/virus-war/index.html?from=singlemessage&isappinstalled=0)  
 [Who Buys from China](https://linkedin-mp.arcdmi.com/WinningGlobally/?from=timeline&isappinstalled=0)  
 
-## 数据分析类新闻（部分）    
+## 数据新闻（部分）    
 [你穿的汉服很美，但十有八九是山寨](https://mp.weixin.qq.com/s/TLbkdfFk0iVA5J9SDaaY1w)  
 [How China ranks among countries with most US work visas](https://www.globalyoungvoices.com/my-story/2017/10/27/how-china-ranks-among-countries-with-most-us-work-visas)  
 [“加班光荣”“我很垃圾”？你很可能被老板PUA了](https://mp.weixin.qq.com/s/nagm79_oo_lJE2itgGgHLw)  
@@ -14,7 +21,7 @@
 [未返京的300万人和停开的130趟列车：细水长流的返工潮](https://view.inews.qq.com/a/20200219A06EXF00?uid=)  
 [CT诊断效率跑赢了核酸试剂？湖北省CT可用于临床诊断](https://page.om.qq.com/page/OjLlPYGJAJI--IEa0QkGey9g0)
 
-## 数据展示类漫画  
+## 数据导向漫画  
 [Ofo剧中局：一个新物种的消亡史](https://mp.weixin.qq.com/s/YLkR32M-eJkO2LKXGBP34w)  
 [“漫谈”春运抢票进化史：从通宵排队黄牛代购，到加速包、云抢票](https://mp.weixin.qq.com/s/GGPtyt70JeE3FN0WeNS91g)  
 [姥爷您慢点，我跟不上节奏](https://mp.weixin.qq.com/s/QwvcM_fXWZ95yISujD3Iaw)  
