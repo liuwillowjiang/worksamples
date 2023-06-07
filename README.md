@@ -1,15 +1,14 @@
 # worksamples
 ## 《太古思维》内刊文章主笔
-[志在必赢，畅爽未来](https://chineseswirenews.swire.com/2023-01/Driven-To-Win.html)
-
-[爱的步履，且行且长](https://chineseswirenews.swire.com/2023-01/Steps-Of-Love.html)
-[创流不息，向新而生](https://chineseswirenews.swire.com/2022-03/50th-Anniversary.html)
-[扬帆起航“她”力量](https://chineseswirenews.swire.com/2022-03/She-Power.html)
-[“跨界”人生，筑基未来](https://chineseswirenews.swire.com/2022-02/Building-The-Future.html)
+[志在必赢，畅爽未来](https://chineseswirenews.swire.com/2023-01/Driven-To-Win.html) 
+[爱的步履，且行且长](https://chineseswirenews.swire.com/2023-01/Steps-Of-Love.html) 
+[创流不息，向新而生](https://chineseswirenews.swire.com/2022-03/50th-Anniversary.html) 
+[扬帆起航“她”力量](https://chineseswirenews.swire.com/2022-03/She-Power.html) 
+[“跨界”人生，筑基未来](https://chineseswirenews.swire.com/2022-02/Building-The-Future.html) 
 
 ## H5文案、数据整合以及项目管理(建议手机端观看)  
 [Virus War](https://news.cgtn.com/event/2020/virus-war/index.html?from=singlemessage&isappinstalled=0)  
-[Who Buys from China](https://linkedin-mp.arcdmi.com/WinningGlobally/?from=timeline&isappinstalled=0)  
+[Who Buys from China](https://linkedin-mp.arcdmi.com/WinningGlobally/?from=timeline&isappinstalled=0)   
 
 ## 数据新闻（部分）    
 [你穿的汉服很美，但十有八九是山寨](https://mp.weixin.qq.com/s/TLbkdfFk0iVA5J9SDaaY1w)  
